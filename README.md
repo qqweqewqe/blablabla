@@ -1,2 +1,2 @@
 # sense
-key is in discord
+bla bla bla
